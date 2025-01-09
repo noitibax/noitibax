@@ -2,7 +2,7 @@
 - 👀 I’m interested in blockchain, crypto, javascript, C++ 
 - 🌱 I’m currently learning C++
 - 💞️ I’m looking to collaborate on everything that involves technology and learning!
-- 📫 How to reach me via email seannnpatrick@gmail.com
+- 📫 How to reach me via email bankzillla@gmail.com
 
 I will fil this out more once i get to it!
 
